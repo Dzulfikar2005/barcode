@@ -1,0 +1,2 @@
+# barcode
+MESRA JUGA YAA
